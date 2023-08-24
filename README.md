@@ -8,3 +8,10 @@ Sa maison était bâtie au bord d'une clairière.
 
 Cette clairière était couverte de +:mushroom:
 
+
+Mais en plus des *champignons*, se trouvaient des ***canards***.
+
+Les canards **adorent** manger les +:mushrooms:,
+
+Même si ceux-ci les rendent :vomiting_face:.
+
