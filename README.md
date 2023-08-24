@@ -15,3 +15,9 @@ Les canards **adorent** manger les +:mushrooms:,
 
 Même si ceux-ci les rendent :vomiting_face:.
 
+
+Les mushrooms sont magnifique plein de couleur.
+
+Rouge avec des petit pois blanc.
+
+la petite fille aimerait en manger.
