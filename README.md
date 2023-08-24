@@ -11,22 +11,22 @@ Cette clairière était couverte de :mushroom:
 
 Mais en plus des *champignons*, se trouvaient des ***canards***.
 
-Les canards **adorent** manger les :mushrooms:,
+Les canards **adorent** manger les :mushroom:,
 
 Même si ceux-ci les rendent :vomiting_face:.
 
 
-Les :mushrooms: sont magnifique plein de couleur.
+Les :mushrooms: sont magnifiques, plein de couleurs.
 
-Rouge avec des petit pois blanc.
+Rouge avec des petits pois blanc.
 
-la petite fille aimerait en manger.
+La petite fille aimerait en manger.
 
 
-Mais ses parents lui ont toujours interdits et elle ne *comprend* pas **pourquoi**.
+Mais ses parents lui ont toujours interdit et elle ne *comprend* pas **pourquoi**.
 
 Un jour aprés l'école, la fille mangea un :mushroom:, juste un petit bout et dit "Que-ce-qui pourrait m'arriver".
 
-Malheuresement, la fille aura du écouter ses parents, elle fut retrouver sans-vie sur le sol de sa cuisine.
+Malheuresement, ell  aurait dû écouter ses parents, elle fut retrouvée sans vie sur le sol de sa cuisine.
 
 
