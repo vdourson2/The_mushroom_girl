@@ -4,5 +4,5 @@
 
 Il était une fois une jeune fille qui vivait dnas une forêt profonde.
 Sa maison était bâtie au bord d'une clairière.
-Cette clairière était couverte de :1F344:
+Cette clairière était couverte de :U1F344:
 
